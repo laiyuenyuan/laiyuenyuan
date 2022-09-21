@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @laiyuenyuan
-- 👀 I’m interested in National University of Singpaore
-- 🌱 I’m currently learning Finance and business economics.
-- 💞️ I’m looking to collaborate on ...
+- 👀 I’m a crypto investment analyst trading shitcoins 
+- 🌱 I’m also a founder of an NFT collection called Cosmic Crypto Crusade.
+- 💞️ I’m looking to raise funds for crypto public goods 
 - 📫 How to reach me on LinkedIn @LaiYuen
 
 <!---
